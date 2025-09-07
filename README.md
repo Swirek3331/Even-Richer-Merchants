@@ -1,0 +1,2 @@
+# Even-Richer-Merchants
+chciwość
